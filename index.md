@@ -16,15 +16,15 @@ Director of Curatorial Affairs and Director, Software History Center.
 Curator and Director, Software History Center
 
 2004-2016	D. C. BROCK CONSULTING, Greenfield, MA.
-		      
+
 Principal
 
-1998-2015	SCIENCE HISTORY INSTITUTE, Philadelphia, PA. 
-        	 
-Associate Historian 1998-2000
+1998-2015	SCIENCE HISTORY INSTITUTE, Philadelphia, PA.A
+
+Associate Historian, 1998-2000
 
 Program Manager, 2000-2004
-        	
+
 Senior Research Fellow, 2004-2015
 
 Affiliations
