@@ -9,29 +9,29 @@ Employment
 
 2021-Present	COMPUTER HISTORY MUSEUM, Mountain View, CA.
 
-      Director of Curatorial Affairs and Director, Software History Center.
+Director of Curatorial Affairs and Director, Software History Center.
 
 2016-2021	COMPUTER HISTORY MUSEUM, Mountain View, CA.
 
-      Curator and Director, Software History Center
+Curator and Director, Software History Center
 
 2004-2016	D. C. BROCK CONSULTING, Greenfield, MA.
 		      
-      Principal
+Principal
 
 1998-2015	SCIENCE HISTORY INSTITUTE, Philadelphia, PA. 
         	 
-      Associate Historian 1998-2000
+Associate Historian 1998-2000
+
+Program Manager, 2000-2004
         	
-      Program Manager, 2000-2004
-        	
-      Senior Research Fellow, 2004-2015
+Senior Research Fellow, 2004-2015
 
 Affiliations
 
 2016-Present	UNIVERSITY OF CALIFORNIA, SANTA BARBARA, Santa Barbara, CA.
 
-      Visiting Scholar, Department of History
+Visiting Scholar, Department of History
 
 Recent Publications 
 
