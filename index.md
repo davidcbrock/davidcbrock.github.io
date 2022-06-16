@@ -1,4 +1,5 @@
 David C. Brock
+
 dbrock@computerhistory.org
 
 David C. Brock is an historian of technology, Director of Curatorial Affairs and director of the Software History Center at the Computer History Museum. He focuses on histories of computing, electronics and software, as well as on oral history. Brock’s work in the history of semiconductor electronics includes Thackray, Brock and Jones,'Moore’s Law: The Life of Gordon Moore, Silicon Valley’s Quiet Revolutionary' (Basic Books, 2015); Lécuyer and Brock, 'Makers of the Microchip: A Documentary History of Fairchild Semiconductor' (MIT Press, 2010); and Brock (ed.) 'Understanding Moore’s Law' (CHF, 2005). He has served as a writer and executive-producer for several documentary shorts and hour-long television documentaries including: "Moore’s Law at 50"; "Scientists You Must Know"; "Gordon Moore"; and "Arnold O. Beckman".
